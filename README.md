@@ -18,7 +18,7 @@ These activities are more than just hobbies; they're my go-to for managing stres
 ## My Journey So Far 🚀
 
 
-And now, I'm on an exciting new path! I'm currently channeling my energy and expertise into freelancing on **Upwork**. It's a fantastic platform that allows me to connect with diverse projects and clients, and I'm genuinely enjoying the flexibility and focus it brings. This shift has given me more time to dedicate to the work I love, and I'm excited about the opportunities it presents.
+After business for almost 20 year, And now, I'm on an exciting new path! I'm currently channeling my energy and expertise into freelancing on **Upwork**. It's a fantastic platform that allows me to connect with diverse projects and clients, and I'm genuinely enjoying the flexibility and focus it brings. This shift has given me more time to dedicate to the work I love, and I'm excited about the opportunities it presents.
 
 
 ## Let's Connect! 🤝
